@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @042JaRule
+- 👋 Hi, I’m @lucas eduardo
 - 👀 I’m interested in ...me formar em uma boa faculdade
 - 🌱 I’m currently learning ...descobrir novos conteudos
 - 💞️ I’m looking to collaborate on ...oque precisar 
